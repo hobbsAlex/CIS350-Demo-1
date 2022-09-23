@@ -1,8 +1,6 @@
 # CIS350-Demo
 
-**ALL BUGS HAVE BEEN FIXED**
-
-or have they?!
+askldjf;lasjdflkasjdl;fjaslkdfjasld
 
 **YES THEY HAVE**
 
